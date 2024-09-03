@@ -1,1 +1,0 @@
-# RIF_IMAGE
